@@ -10,3 +10,4 @@ Silakan gunakan format berikut:<br>
 
 Berikut adalah daftar Volunter yang diterima:
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
+* Raissa Yasmin, [Instagram](https://www.instagram.com/ryasmiinn/)
